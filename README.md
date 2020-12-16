@@ -1,1 +1,3 @@
 # palendrome
+dbadkbkdfkdbbf
+fdfldkflxlvnxvf
